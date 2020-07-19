@@ -1,1 +1,0 @@
-# nabakshirak.github.io
